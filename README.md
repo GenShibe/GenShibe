@@ -1,5 +1,7 @@
 ### Hiii, i'm Gen :3
-This account pretty much only exists for me to update [Userstyles for Catppuccin](https://github.com/catppuccin/userstyles), as well as to star things and update my website :p
+I'm not much of a coder by any means, as i suck at it :p 
+
+So this account pretty much only exists for me to update [Userstyles for Catppuccin](https://github.com/catppuccin/userstyles), as well as to star things and update my website (which you should check out btw :3)
 
 if you want to know more about me, check out my website, or talk to me :3
 ### Contact me:
