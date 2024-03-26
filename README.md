@@ -1,10 +1,8 @@
-### Hiii, i'm Gen :3
-I'm not much of a coder by any means, as i suck at it :p 
+### Haiii, i'm Gen 
+I'm not much of a coder by any means lol. this account pretty much only exists for me to update [Userstyles for Catppuccin](https://github.com/catppuccin/userstyles), as well as to star things that i like and update my website (which you should check out btw :3)
 
-So this account pretty much only exists for me to update [Userstyles for Catppuccin](https://github.com/catppuccin/userstyles), as well as to star things and update my website (which you should check out btw :3)
-
-if you want to know more about me, check out my website, or talk to me :3
-### Contact me:
+if you want to know more about me, check out my website, or talk to me (i don't bite and i'm not scary :p)
+### links:
 * Website: [GenShibe.ca](genshibe.ca)
 * Email: Gen@GenShibe.ca
 * Discord: [GenShibe](https://discord.com/users/217892728875253760)
