@@ -4,7 +4,7 @@ I'm not much of a coder by any means. this account pretty much exists for me to 
 if you want to know more about me, check out my website, or talk to me :3
 ## Links:
 * Website: [genshibe.ca](genshibe.ca)
-* Email: Gen@genshibe.ca
+* Email: contact@genshibe.ca
 * Discord: [GenShibe](https://discord.com/users/217892728875253760)
 * Instagram: [Spotter_Gen](https://instagram.com/spotter_gen)
 ## My Stats :3
